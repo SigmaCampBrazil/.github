@@ -4,4 +4,4 @@ In 2012, scientists from the United States created SigmaCamp with the goal of sp
 
 Initially, SigmaCamp was held exclusively in Connecticut, USA. This changed when its founders discovered the Etapa System methodology and recognized shared educational values. This alignment led to a partnership, and in 2024, SigmaCamp arrived in Brazil as ETAPA SigmaCamp, inspiring young talents from across the country.
 
-[https://etapasigmacamp.com.br/about/](https://etapasigmacamp.com.br)
+[https://etapasigmacamp.com.br](https://etapasigmacamp.com.br)
